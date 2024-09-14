@@ -1,8 +1,8 @@
 # INFO
 # ABOUT-ME
-![WhatsApp Image 2021-11-23 at 1 31 04 PM](https://user-images.githubusercontent.com/93251792/142988982-4f011561-f364-4c71-b694-83f2745484fc.jpg)
+![WhatsApp Image 2021-11-23 at 1 31 04 PM](C:\Users\parme\OneDrive - rnsit.ac.in\Pictures\job\certificate\Parmesh Ramsekar.jpg)
 
-
+https://user-images.githubusercontent.com/93251792/142988982-4f011561-f364-4c71-b694-83f2745484fc.jpg
 
 
 ### Hi there 👋
